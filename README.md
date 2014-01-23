@@ -1,6 +1,6 @@
 The OUFC Score Scraper 
 =================
-[<img src="http://www.yorkpress.co.uk/resources/images/1487894.jpg"/>][oufc]
+[<img src="http://www.oxkits.co.uk/club_badges/oufc%20badge%202006.gif"/>][oufc]
 
 Every OUFC supporting nerd needs this!
 
